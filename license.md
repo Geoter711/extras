@@ -1,0 +1,1 @@
+<a href="https://commons.wikimedia.org/wiki/File:Shigeru_Miyamoto_cropped_2_Shigeru_Miyamoto_201911.jpg">文部科学省ホームページ</a>, <a href="https://creativecommons.org/licenses/by/4.0">CC BY 4.0</a>, via Wikimedia Commons
